@@ -1,4 +1,4 @@
-# chaturbate-viewer
+# chaturbate cheating viewers
 
 The program allows you to raise online broadcasts, thereby raising the model higher in the recommendations.
 
